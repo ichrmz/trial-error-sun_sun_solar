@@ -1,1 +1,0 @@
-# trial-error-sun_sun_solar
